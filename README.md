@@ -1,2 +1,1 @@
-Khva0.github.io
-===============
+vasylyshyn.name www placeholder project
